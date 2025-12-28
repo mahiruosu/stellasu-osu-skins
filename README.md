@@ -10,7 +10,7 @@ contact "mahiru" on osu! if you have any problems or need an update
 ![315](https://files.catbox.moe/dg4ewq.jpg)
 
 [asdf](https://drive.google.com/file/d/14Obysz3yqKcOG9SdKqCqTshsA2gXhsTW/view?usp=drive_link)
-![asdf](https://files.catbox.moe/0abn91.webp)
+![asdf](https://files.catbox.moe/p5zfp2.jpg)
 
 [fukari cat maid](https://drive.google.com/uc?export=download&id=12wC53hqbHwPCVp3Xiu2WzY1diiWHSgbL)
 ![fukari](https://files.catbox.moe/fbzr4e.webp)
@@ -49,7 +49,7 @@ contact "mahiru" on osu! if you have any problems or need an update
 ![mix](https://files.catbox.moe/trslol.webp)
 
 [Welteredit](https://drive.google.com/uc?export=download&id=1OkVrQI9-jg6G75riDxFMavdEwylv69Xi)
-![welter](https://files.catbox.moe/djfanz.jpg)
+![welter](https://files.catbox.moe/s80qmf.jpg)
 
 
 
