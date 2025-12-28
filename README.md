@@ -48,6 +48,8 @@ contact "mahiru" on osu! if you have any problems or need an update
 [zara mix](https://drive.google.com/uc?export=download&id=1Q8OnAs_qjJdDnc5wwD5VgDhGqj8ycAAE)
 ![mix](https://files.catbox.moe/trslol.webp)
 
+[Welteredit](https://drive.google.com/uc?export=download&id=1OkVrQI9-jg6G75riDxFMavdEwylv69Xi)
+![welter](https://files.catbox.moe/djfanz.jpg)
 
 
 
