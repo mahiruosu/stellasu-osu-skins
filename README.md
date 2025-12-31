@@ -51,6 +51,8 @@ contact "mahiru" on osu! if you have any problems or need an update
 [Welteredit](https://drive.google.com/uc?export=download&id=1OkVrQI9-jg6G75riDxFMavdEwylv69Xi)
 ![welter](https://files.catbox.moe/s80qmf.jpg)
 
+[splittyboshyrino](https://drive.google.com/uc?export=download&id=1jpBTKQnSEk27keiM_VC9E3oqBtTylqd-)
+![boshy](https://files.catbox.moe/885xgp.jpg)
 
 
 
