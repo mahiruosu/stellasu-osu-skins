@@ -1,7 +1,7 @@
 # stellasu-osu-skins
 skins used by twitch.tv/stellasuu
 
-contact "mahiru" on osu! if you have any problems or need an update
+contact "-litschi" on osu! if you have any problems or need an update
 
 [00xfej5edit](https://drive.google.com/uc?export=download&id=1yZecV8yY72FZdD8mS6mtA5FWngRiO1Z6)
 ![00xfej5edit](https://files.catbox.moe/84e6q1.jpg)
